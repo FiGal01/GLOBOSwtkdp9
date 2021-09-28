@@ -1,1 +1,0 @@
-# GLOBOSwtkdp9
